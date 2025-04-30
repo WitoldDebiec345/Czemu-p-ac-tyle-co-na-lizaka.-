@@ -1,1 +1,2 @@
 # Czemu-p-ac-tyle-co-na-lizaka.-
+To Bezosy Jeff Bezos tyle płacą i Elon Mask. Harcerze ich bronią z wojskowymi i mówią jeszcze polska nie zgineła jak jest głoda póki my żyjemy. Ich inne frazesy to Awe rodak wysportowany jak agent. Traktują nas jak mięso armatnie. Kali to generał dziś kali to procesor. Z tego co wiem politycy chcą tyle dawać jak 1000 zł i 1000 euro stałe ich gadki. Kasę maja bezosy. Więcej nie wiem. Masoneria to kolejna władza. Suchają kali procesor. Jakiś wojskowy procesor smoka Lee Danton. To chyba ci post złodzieje od postów.  
